@@ -1,0 +1,2 @@
+# Gizlenmi--okto-utan-
+lisans
